@@ -1,1 +1,1 @@
-# UAS-PEMROGRAMANKOMPUTER-NADIATRIWANA.S-09011282328051
+# Nadia Triwana.S, NIM : 09011282328051, Fakultas Ilmu Komputer, Jurusan Sistem Komputer serta ujian Pemrograman Komputer
